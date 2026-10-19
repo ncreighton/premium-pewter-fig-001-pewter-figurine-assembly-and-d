@@ -1,0 +1,2 @@
+# premium-pewter-fig-001-pewter-figurine-assembly-and-d
+Tired of forgetting which paint mix you used for that perfect antique bronze finish on your last pewter figurine? This Notion template eliminates the guesswork, so every assembly and detail painting session is perfectly documented.  The Pewter Figurine Assembly and Detail Painting Log solves the chaos of tracking multiple projects by giving you a s
